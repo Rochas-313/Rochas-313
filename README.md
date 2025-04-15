@@ -1,7 +1,7 @@
 
 ![0f3817da1af829075774018b36ebb587](https://github.com/user-attachments/assets/4546a582-b340-43fa-81a4-8f6c5f24b08c)
 
-**Nyx ﾉ Roach** !!:33 ** ﾉ **heﾉhim** ﾉ **feb 22**
+**Nyx ﾉ Roach** :-) ﾉ **heﾉhim** ﾉ **feb 22**
 
 Filipino 🇵🇭  (^ ᴗ  ^ )ﾉ
 
@@ -16,11 +16,11 @@ _Basic dni , proshippers don't b weirdo:///_
 
 **INT ✔️**
 
-                    ###remember object shows ! :-)### 
+         remember object shows ! :-)
 
 II , BFDI , AB , AIB , ITFT , 5SOS , KFC and moree,,
 
-                                __fandom__
+                           fandoms :3!
 forsaken, roblox arg , regretevator , dandy's world , phighting , cookie run and more!! :33
 
 
