@@ -1,7 +1,7 @@
 
 ![0f3817da1af829075774018b36ebb587](https://github.com/user-attachments/assets/4546a582-b340-43fa-81a4-8f6c5f24b08c)
 
-**Nyx ﾉ Roach** :-) ✦ **he ﾉ him** ✦ **feb 22**
+**Nyx ﾉ Roach ノ Rochas313** :-) ✦ **he ﾉ him** ✦ **feb 22**
 
 Filipino 🇵🇭  (^ ᴗ  ^ )ﾉ
 
